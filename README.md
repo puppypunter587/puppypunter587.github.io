@@ -5,4 +5,4 @@
  
   
   
-  [sexy](https://puppypunter587.github.io/f1.html)
+  [sexy](https://puppypunter587.github.io/F1.html)
